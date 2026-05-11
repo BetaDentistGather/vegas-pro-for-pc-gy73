@@ -1,4 +1,4 @@
-# 
+# Vegas Pro for PC | Vegas Pro for Windows ultimate Transition: LUT-support & color-grading offers the most advanced Vegas Pro for PC | Vegas Pro for Windows transition, with
 
 
 
